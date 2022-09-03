@@ -1,7 +1,7 @@
 # Information-Systems-Tools
 sup
 
-
+[Okay, I pull up, hop out at the after party](https://www.youtube.com/watch?v=fKrWIsRC0aE)
 
 ### Пишу немного о ***себе*** , *u now*
 
